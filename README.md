@@ -53,3 +53,5 @@ Ensure you have the following installed:
 
 - **Anas Ashraf Fawy**  
   Email: [anas.a.fawzy@gmail.com](mailto:anas.a.fawzy@gmail.com)
+  Phone:00201127882821
+  WhatsApp:https://wa.me/+201127882821
